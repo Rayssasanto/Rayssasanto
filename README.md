@@ -1,8 +1,6 @@
 - 👋 Olá! Eu sou a Rayssa
-- 👀 tenho 15 anos 
+- 👀 tenho 17 anos 
 - 🌱 sou aluna no colégio estadual do campo cívico militar Baldomero Bitencourt Taques
-- 💕 gosto muito de jogar bola 
-- 🖤 Corinthians minha paixão 
 - 📌 sou de tibagi pr 
 - 🐶 amo os animais 
 <!---
